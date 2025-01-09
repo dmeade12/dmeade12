@@ -16,4 +16,4 @@
 
 
 
-[linkedin]: https://linkedin.com/in/joshmadakor
+[linkedin]: https://www.linkedin.com/in/dwayne-meade-21381b192/
